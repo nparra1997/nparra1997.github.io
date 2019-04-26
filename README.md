@@ -8,4 +8,4 @@ Cell : 661-714-9812
 
 ## Resume
 
-[Nicolas-Parra-Resume.pdf](Nicolas-Parra-Resume.pdf)
+[Downloadable PDF](Nicolas-Parra-Resume.pdf)
